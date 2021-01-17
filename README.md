@@ -1,3 +1,1 @@
-```
-diganti dulu ya slurd jgn langsung upload, id aplikasine sama ntar 🤏
-```
+Akhmad Rayan Firdaus 18.12.0769
